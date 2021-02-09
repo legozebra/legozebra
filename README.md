@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-📫 How to reach me: LegoZebra@gmail.com
+📫 How to reach me: LegoZebra@gmail.com<br>
+⚡ Fun fact: Check out (& Subscribe if you like it..) my YouTube Channel! https://www.duckbricks.com
