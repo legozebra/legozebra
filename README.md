@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 📫 How to reach me: LegoZebra@gmail.com<br>
-⚡ Fun fact: Check out (& Subscribe if you like..) my YouTube Channel! https://www.duckbricks.com
+⚡ Fun fact: Check out my LEGO YouTube Channel! https://www.duckbricks.com
